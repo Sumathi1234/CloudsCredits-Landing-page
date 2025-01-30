@@ -1,0 +1,1 @@
+Welcome to GITAM University – a premier institution committed to academic excellence, innovation, and holistic education. Explore world-class programs, cutting-edge research, and a vibrant campus life that shapes future leaders. Join us in transforming aspirations into achievements
